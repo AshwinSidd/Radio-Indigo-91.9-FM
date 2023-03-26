@@ -22,4 +22,4 @@ For the first time ever, a radio station collaborated with airports across the c
 ![image](https://user-images.githubusercontent.com/92342751/164576146-45e484ab-3027-468c-86a0-c02a05c8c178.png)
 
 ## Impact
-With this, Radio Indigo became one of the first radio stations in the country to provide Radio As A Service (RAAS) at international airports. The new coverage reach turned out to be in millions (based on the circulation of the newspapers/magazines/websites) and this project was highly regarded as one of the best initiatives w.r.t. communications. 
+With this, Radio Indigo became one of the first radio stations in the country to provide Radio As A Service (RAAS) at international airports. The new coverage reach turned out to be in millions (based on the circulation of the newspapers/magazines/websites) and this project was highly regarded as one of the best campaigns in the region. 
